@@ -1,4 +1,4 @@
-# San Francisco, CA
+# San Diego, CA
 
 ### Things to do
 
