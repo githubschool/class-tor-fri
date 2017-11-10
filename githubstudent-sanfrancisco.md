@@ -1,4 +1,4 @@
-# San Francisco, CA
+# San Francisco, California
 
 ### Things to do
 
